@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me email
-- 😄 Pronouns: eu, Tiago 
+- 😄 Pronouns: ele
 - ⚡ Fun fact: nothing
 
 <!---
