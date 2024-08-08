@@ -14,3 +14,4 @@ Pai é muito brabo
 sim
 eu to aqui
 😎🤚
+https://c.tenor.com/xbYxj73uwOAAAAAC/tenor.gif
